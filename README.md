@@ -1,0 +1,1 @@
+# Akumulator-polimerowo-kwantowy
